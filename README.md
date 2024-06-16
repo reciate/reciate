@@ -1,4 +1,4 @@
-![bro](https://cdn.discordapp.com/attachments/301453232478093312/737998549492695040/unknown.png)
+![sippin](https://cdn.discordapp.com/attachments/1232774279817597019/1244379862551232574/Screenshot_20240417-031936.png?ex=666fed4e&is=666e9bce&hm=a7748f0448261277da79b9b52adc52b5eac5bd011087edc779fbfcc9a9414699&)
 
 <!--
 **AnusReaper/AnusReaper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
