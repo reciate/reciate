@@ -1,4 +1,4 @@
-![sosa](https://cdn.discordapp.com/attachments/888732499365212170/1224033861533569145/2Q.png?ex=666fbc9e&is=666e6b1e&hm=f6d830464cff9ec9a560a7a0926b8d6154eb900c5a6cc435f17d5224647fad04&)
+![hello](https://i.kym-cdn.com/photos/images/original/002/768/434/59c)
 
 <!--
 **AnusReaper/AnusReaper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
